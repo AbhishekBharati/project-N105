@@ -1,1 +1,1 @@
-Sun rises in west!!!
+Sun rises, from East!!!
